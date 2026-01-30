@@ -7,6 +7,7 @@
 
 **Instructions**:
 - cut and mash avocados
+- finely cut jalapeno
 - chop onion
 - squeeze lime
 - add salt
